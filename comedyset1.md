@@ -73,8 +73,7 @@ I was bullied a lot in school and one of my biggest fears are girls over
 lot of intimacy issues and I think it's probably because I saw my
 parents have sex, that was last week, and they don't even live in
 Canada. I think they're trying to control me with sex. Im like sorry dad
-I screwed up my exam today, my dad's like well somebody is getting
-screwed tonight. One time I looked into a women eye and though I was in
+I screwed up my exam today, my dad's like weltime I looked into a women eye and though I was in
 love and then I saw the face and realised it was my mom. I have no game
 when it comes to dating, my favourite pick up like is, do you know I
 used to be a surgeon in my country. It doesn't work
